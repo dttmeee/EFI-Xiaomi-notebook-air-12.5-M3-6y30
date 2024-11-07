@@ -1,0 +1,1 @@
+# EFI-Xiaomi-notebook-air-12.5-M3-6y30
